@@ -1,1 +1,3 @@
-# lozbey-teyit
+# Blood Teyit
+
+Bot By Loz Bey ❤️ ❤️ ❤️ ❤️ ❤️ ❤️ ❤️ ❤️ 
